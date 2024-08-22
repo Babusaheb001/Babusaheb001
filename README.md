@@ -1,3 +1,3 @@
 Name: Abhideep Singh
 <br>
-Owner of this Laptop: Jayraj Singh Rathore
+Owner of this Laptop: Jayraj Singh Rathore.
